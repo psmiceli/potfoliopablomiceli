@@ -1,2 +1,2 @@
 # potfoliopablomiceli
-ATUALIZANDO - VERSÃO FINAL 28/09
+ATUALIZANDO - 28/09
